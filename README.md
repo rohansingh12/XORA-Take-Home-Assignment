@@ -1,1 +1,0 @@
-# XORA-Take-Home-Assignment
